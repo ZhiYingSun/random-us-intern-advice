@@ -26,5 +26,6 @@ https://irenexychen.com/blog/2021/08/us-intern-guide-covid
 ### misc.
 * don't arrive too early, anywhere around noon should be good. 
 * If you have an airbnb, be mindful of the check-in time.
+* It is normal to be stressed [^1], you will be okay even if there are delays! 
 
-if you need someone to talk to about this experience, feel free to email me!
+[^1]: if you need someone to talk to about this experience, feel free to email me!
